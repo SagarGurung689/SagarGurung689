@@ -43,12 +43,7 @@ Motivated Flutter Developer with a strong foundation in Computer System Engineer
 ## Education
 
 ### BSc. (Hons) in Computer System Engineering (BSc.IT)
-*Janapriya Multiple Campus, SimalChaur Pokhara*
 
-
-### SLC
-*Shree Shetela Higher Secondary School, Pawai Gaudne – 5, Syangja*
-*Year of Completion: 2068*
 
 ---
 
