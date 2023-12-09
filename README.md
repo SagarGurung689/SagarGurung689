@@ -44,7 +44,7 @@ Motivated Flutter Developer with a strong foundation in Computer System Engineer
 
 ### BSc. (Hons) in Computer System Engineering (BSc.IT)
 *Janapriya Multiple Campus, SimalChaur Pokhara*
-*Ongoing - Semester and Running*
+
 
 ### SLC
 *Shree Shetela Higher Secondary School, Pawai Gaudne – 5, Syangja*
